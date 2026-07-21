@@ -1,0 +1,25 @@
+本场是传控足球的完美胜利，西班牙依靠持续高压、深厚替补阵容拖垮死守的阿根廷；大马丁多次世界级扑救延缓丢球，但球队减员后无力回天。梅西无缘卫冕，斗牛士军团复刻 2010 年加时一球夺冠的传奇，拿下队史第二座世界杯冠军。
+https://v.youku.com/v_show/id_XNjUzNTE3Nzc4OA==.html    
+https://v.youku.com/v_show/id_XNjUzNTE3MzM4OA==.html
+https://v.youku.com/v_show/id_XNjU0NDExMzQ3Ng==.html       
+https://v.youku.com/v_show/id_XNjU0NDExOTQzMg==.html
+https://v.youku.com/v_show/id_XNjU0NDExOTQzMg==.html
+https://v.youku.com/v_show/id_XNjU0NDExNDgxMg==.html
+https://v.youku.com/v_show/id_XNjU0NDEwNzA2MA==.html
+https://v.youku.com/v_show/id_XNjUzNTE3NDQ2MA==.html
+https://v.youku.com/v_show/id_XNjU1MDA3MjgwNA==.html
+https://v.youku.com/v_show/id_XNjU1MDA1NzU3Ng==.html
+https://v.youku.com/v_show/id_XNjU0MTAzMzg4NA==.html
+https://v.youku.com/v_show/id_XNjU1MDA3MzQ5Mg==.html
+https://v.youku.com/v_show/id_XNjU0MTQyNTgzNg==.html
+https://v.youku.com/v_show/id_XNjU0MTQxOTc2MA==.html
+https://v.youku.com/v_show/id_XNjU0MTQyNzQ2OA==.html
+https://v.youku.com/v_show/id_XNjU0MTQzMDYxMg==.html
+https://v.youku.com/v_show/id_XNjU0MTQyOTI0NA==.html
+https://v.youku.com/v_show/id_XNjU1MDQ3NzY2NA==.html
+https://v.youku.com/v_show/id_XNjU0MTQzMDk3Mg==.html
+https://v.youku.com/v_show/id_XNjU1MDQ3NzkxMg==.html
+https://v.youku.com/v_show/id_XNjU0MTQzNjk0NA==.html
+https://v.youku.com/v_show/id_XNjU0MTQzNTQ5Mg==.html
+https://v.youku.com/v_show/id_XNjU0MTQzNzA2MA==.html
+https://v.youku.com/v_show/id_XNjU1MDQ4MTIxNg==.html
